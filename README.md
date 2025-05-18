@@ -76,4 +76,5 @@ on the resources at the region's hand. Of titles and honors, are there any vacan
 to fill in? Courtroom courtesan, entertainment sensation, so on. 
 
 The idea of the loyal servant is put to the test in times of strange state games and peculiar market trajectives, 
-real and imagined. 
+real and imagined. The loyal servant's decisions in consideration are one thing for what they serve, and their 
+aspirations guide them even when those notions are not at the top of the thought stack. 
