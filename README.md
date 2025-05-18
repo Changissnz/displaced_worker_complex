@@ -33,6 +33,12 @@ that is to interact with their fellow human beings, there really is a state ever
 states that normalize and safeguard. That is what a peace and obedience relies on. A 
 questionable belief is that the state comes before the market. Valid doubts can be posed 
 against this thinking due to the coupled interactions between the state and the market that 
-maintain,construct,deconstruct, and morph the conditions for a people. 
-
+maintain, construct, deconstruct, and morph the conditions for a people. Market dynamics 
+can be argued to be more free to act and more cost-efficient to enact. These qualities 
+do have to be considered in the scope of the whole for there to be convincing arguments 
+on their superiorities to alternatives. The market is of decision, first and foremost, 
+rather than command for and from the state. The birth of market enterprises are informal, 
+small of scale, and their players need not rely on their history in order to be successful. 
+States can also not rely so much on their history, but fostering and maintaining their validity 
+really does depend on the human memories of their performance during relevant timespans. 
 
