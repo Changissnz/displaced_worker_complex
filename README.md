@@ -27,4 +27,12 @@ on this matter, the term "occupation" could be taken to mean the hobbies and pas
 the displaced worker. The worker is displaced not necessarily because there are not 
 enough labor vacancies for them to fill in. Their activities are difficult for them to 
 monetize on. It is inadequate to generalize the aspirations of the displaced worker. They 
-are an agent in a puzzling interaction of rule by market and rule by state. 
+are an agent in a puzzling interaction of rule by market and rule by state. The state, 
+in this context, is not so much a guarantee as it is a base for a people. For any individual 
+that is to interact with their fellow human beings, there really is a state everywhere, 
+states that normalize and safeguard. That is what a peace and obedience relies on. A 
+questionable belief is that the state comes before the market. Valid doubts can be posed 
+against this thinking due to the coupled interactions between the state and the market that 
+maintain,construct,deconstruct, and morph the conditions for a people. 
+
+
