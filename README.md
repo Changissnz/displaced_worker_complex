@@ -1,5 +1,5 @@
 # The Displaced Worker Complex 
-## by Richard Pham 
+## Written by: Richard Pham 
 
 The displaced worker experiences dissonance unsuitable for their job security. Their 
 current status is because of dissonance, and the dissonance persists in evolved forms 
