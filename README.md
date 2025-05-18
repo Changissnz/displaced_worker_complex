@@ -113,8 +113,8 @@ middle point where the sun always shines, where there is never darkness?
 
 Market trust. To aspire for more when a maximal point has been met, in the market, is to have to trust some words and 
 declared insights of gambler types based on their declared forecasts of futures. Predictions. Futures. When the prediction 
-is not identical when it comes time for the future, trust for market becomes discouraged to follow prediction, prediction 
-better made into useless than worse when uncertainty remains even after the loss from the unexpected. And then there is back 
+is not identical at the time of the future, trust for market becomes discouraged to follow prediction, prediction 
+better made into useless than worse since uncertainty remains even after the loss from the unexpected. And then there is back 
 to the basics: supporting, in some way, the economy for staples such as food and energy. When occupations in services are no 
 longer required due in great part to the changing ecosystem that obsoletes what it can, and during these shifts are trends 
 against imported products from other areas, focus shifts into concentrations ignored for years or never attempted because 
