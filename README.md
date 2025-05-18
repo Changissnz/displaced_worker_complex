@@ -40,5 +40,10 @@ on their superiorities to alternatives. The market is of decision, first and for
 rather than command for and from the state. The birth of market enterprises are informal, 
 small of scale, and their players need not rely on their history in order to be successful. 
 States can also not rely so much on their history, but fostering and maintaining their validity 
-really does depend on the human memories of their performance during relevant timespans. 
+really does depend on the human memories of their performance during relevant timespans. The 
+liquid quality of the market is encouraged by disposing of formal definition and appearances, 
+and this liquidity seeps into the lifeblood of a state, maybe so much that convictions are 
+discarded and allegiances are re-interpreted. Markets can thrive in conditions of liquidity, 
+offering more human beings more options that are then fed back into the market for its growth. 
+
 
