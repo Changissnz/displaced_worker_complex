@@ -106,7 +106,7 @@ are raised. The Princessean identity and the immigrant stereotype made decisions
 according to their expectations. There are aspects in these two concepts that are frequent surfaces of adversity against 
 them. Going back to the loyal servant and the displaced worker, how can the two be conceived as anything similar in times 
 of order that may not depend so much on market forces? The Princessean identity and the immigrant stereotype are split 
-between settling for what is given and still pondering on their ideals and the alternatives that they actually are. So 
+between settling for what is given and still pondering on their ideals juxtaposed to the alternatives that actually are. So 
 too is the ambiguity of the displaced worker in the scope of structured and preconceived judgment. What are they if they 
 are not in place, but how can there be a place for them when the ends of available opportunity and they do not meet at the 
 middle point where the sun always shines, where there is never darkness? 
