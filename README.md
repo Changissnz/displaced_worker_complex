@@ -59,4 +59,16 @@ in the hopes of remaining in or attaining their wanted professional occupation.
 
 Does the displaced worker really deserve to receive blind sympathies? Who is the displaced worker, a 
 competitor in previous settings but now a disenfranchised nobody, unfair to say or unfair because that 
-is the truth? 
+is the truth? So on goes the thinking, because they were a competitor in previous settings, they should 
+have very well expected some inconveniences to come their way. But now that they are no longer so, they 
+deserve sympathy because that is automatically tied to honorable treatment they are entitled to. Take 
+this thinking in action more than a few steps too far, and the focus of attention is no longer on the 
+process of market dynamics in flux. It is about the individual's tale, and many others may share the 
+individual's experiences; that is where the focus is. An important concept to consider in clarifying 
+on the displaced worker's conditions is the resource trap. Resource traps are geographic: there are 
+valuables, typically inanimate objects, in some region that need to be tended to. The conditions of the 
+displaced worker can be justified by their needless strife of attempting to do something other than 
+work alongside peers that deals with the regional resources. Maybe some will think the displaced worker 
+does not really believe in equality, a judgment on their ideals, since they are clearly not very 
+accepting of the opportunities offered to them that all depend on the resources at the region's hand. 
+
