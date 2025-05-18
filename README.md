@@ -18,9 +18,13 @@ comprises the base of the dissonance they experience. Conflicting reports on the
 state of affairs, as well as changing priorities of focus due to the state of finance 
 and other obligations of social and political understanding, necessitates even some of 
 the most quality information to be probabilistic. And that information is as good as the 
-knower's scope of command. Of course, these truths stand with or without the displaced worker, 
-but are worthy of mention for elaborating on the prime qualities of the dissonance in their 
-categorical experience. 
+knower's scope of command, a perspective that is not results-agnostic. Of course, these truths 
+stand with or without the displaced worker, but are worthy of mention for elaborating on 
+the prime qualities of the dissonance in their categorical experience. 
 
-
-
+What skills the displaced worker have are not being maximalized by their occupation. But 
+on this matter, the term "occupation" could be taken to mean the hobbies and passions of 
+the displaced worker. The worker is displaced not necessarily because there are not 
+enough labor vacancies for them to fill in. Their activities are difficult for them to 
+monetize on. It is inadequate to generalize the aspirations of the displaced worker. They 
+are an agent in a puzzling interaction of rule by market and rule by state. 
