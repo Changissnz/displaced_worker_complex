@@ -89,6 +89,9 @@ but not entirely because of objective likeness. The Princessean identity comes f
 the Princessean listens to wisdom and does not participate in gossip like the rest, for she dedicates her time towards 
 bettering herself for her career's sake. But the jobs are not there and the Princessean has to resort to compromising 
 her values to pursue her vision, albeit the vision is in real form with begrudging hesitations and perceivable errors 
-now. 
+now. But the Princessean maintains her composure and plays the game of limited options. The Princessean, after the hump 
+she crosses, reflects on her struggles as necessary and continues on in consistently standing by her convictions, before 
+and after her trials. Immigrants do not immigrate to some other place except because they envision something better for 
+themself. 
 
 
