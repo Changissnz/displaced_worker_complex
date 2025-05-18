@@ -117,7 +117,7 @@ is not identical at the time of the future, trust for market becomes discouraged
 better made into useless than worse since uncertainty remains even after the loss from the unexpected. And then there is back 
 to the basics: supporting, in some way, the economy for staples such as food and energy. When occupations in services are no 
 longer required due in great part to the changing ecosystem that obsoletes what it can, and during these shifts are trends 
-against imported products from other areas, focus shifts into concentrations ignored for years or never attempted because 
+against imported products from other areas, focus shifts into internal concentrations ignored for years or never attempted because 
 of imports. The displaced worker really is an agent from impermanence and of impermanence, still bound to the demands of what 
 can be and what is based possibly on what was. The endgame includes this important detail, expressed in a quasi-poetic way: 
 the dust always settles, with or without that summer rain some say make for those romantic experiences fit for novels to be retold, 
