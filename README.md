@@ -75,3 +75,5 @@ their ideals, since they are clearly not very accepting of the opportunities off
 on the resources at the region's hand. Of titles and honors, are there any vacancies for the displaced worker 
 to fill in? Courtroom courtesan, entertainment sensation, so on. 
 
+The idea of the loyal servant is put to the test in times of strange state games and peculiar market trajectives, 
+real or imagined. 
