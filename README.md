@@ -52,8 +52,8 @@ market maintains a level of autonomy that can do the bidding of the state. Capab
 multi-faceted nature become perfected in execution during the maturization of relevant markets. 
 So the displaced worker, being displaced, is willfully so when they do not believe they can 
 further the positive magnitude of the multi-faceted nature via concentrating their efforts in 
-any one facet. The multi-faceted nature may be reforming in quality and quantity and therefore 
-cannot maximally support the labor and capital compensation expectations of the displaced worker, 
-no matter how hard the worker tries in their attempts to appease in the hopes of remaining in or 
-attaining their wanted professional occupation. 
+any one facet. They lose interest. The multi-faceted nature may be reforming in quality and quantity 
+and therefore cannot maximally support, relatively speaking, the labor and capital compensation 
+expectations of the displaced worker, no matter how hard the worker tries in their attempts to appease 
+in the hopes of remaining in or attaining their wanted professional occupation. 
 
