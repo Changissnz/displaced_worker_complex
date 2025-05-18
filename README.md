@@ -69,8 +69,8 @@ this thinking in action more than a few steps too far, and the focus of attentio
 process of market dynamics in flux. It is about the individual's tale, and many others may share the 
 individual's experiences; that is where the focus is due, expectations to be received in a passive-like 
 way that should be taken for granted instead of the pro-active approach not so inwardly considerate. An 
-important concept to consider in clarifying on the displaced worker's conditions is the resource trap. 
-Resource traps are geographic: there are valuables, typically inanimate objects, in some region that need 
+important concept to consider in clarifying on the displaced worker's conditions is the resource curse. 
+Resource curses are geographic: there are valuables, typically inanimate objects, in some region that need 
 to be tended to. The conditions of the displaced worker can be attempted justification by telling on their 
 needless strife of attempting to do something other than work alongside peers that deals with the regional 
 resources. Maybe some will think the displaced worker does not really believe in equality, this a judgment on 
