@@ -24,10 +24,12 @@ the prime qualities of the dissonance in their categorical experience.
 
 What skills the displaced worker have are not being maximalized by their occupation. But 
 on this matter, the term "occupation" could be taken to mean the hobbies and passions of 
-the displaced worker. The worker is displaced not necessarily because there are not 
-enough labor vacancies for them to fill in. Their activities are difficult for them to 
-monetize on. It is inadequate to generalize the aspirations of the displaced worker. They 
-are an agent in a puzzling interaction of rule by market and rule by state. The state, 
+the displaced worker. Besides, what comes after maximalization is not much more on that, 
+it seems, and compelled maximalization and the characterization of freedom as the liberty 
+of sloth do not bode well with each other. The worker is displaced not necessarily because 
+there are not enough labor vacancies for them to fill in. Their activities are difficult for 
+them to monetize on. It is inadequate to generalize the aspirations of the displaced worker. 
+They are an agent in a puzzling interaction of rule by market and rule by state. The state, 
 in this context, is not so much a guarantee as it is a base for a people. For any individual 
 that is to interact with their fellow human beings, there really is a state everywhere, 
 states that normalize and safeguard. That is what a peace and obedience relies on. A 
@@ -82,20 +84,22 @@ aspirations passed down the family line, aspirations for the favored, et cetera.
 chosen in the realm of considered decisions. There is debt, loyalty, and identity formatted into ways for a 
 tricycle of stability. Complementary, is it? Does one reliably compensate for the other in times where prohibited 
 bridges are built precisely because the makers of those bridges are their own deciders, can deliver better results, 
-and do it so ideally because of "identical" identity? The servant that is supposed to be loyal asks themself: 
-"why be torn between two worlds when there is an escape right there for me to switch sides for the good of all 
-that I am?" Two concepts, the Princessean identity and the immigrant stereotype, are related to the displaced worker, 
-but not entirely because of objective likeness. The Princessean identity comes from a well-nurturing household. She 
-the Princessean listens to wisdom and does not participate in gossip like the rest, for she dedicates her time towards 
-bettering herself for her career's sake. But the jobs are not there and the Princessean has to resort to compromising 
-her values to pursue her vision, albeit the vision now is in real form with begrudging hesitations and perceivable errors. 
-But the Princessean maintains her composure and plays this game of limited options. The Princessean, after the hump/s 
-she cross/es, reflects on her struggles as necessary and continues on in consistently attempting to stand by her 
-convictions, before and after her trials. Immigrants do not immigrate to some other place except because they envision 
-something better for themselves. Disenfranchised and having to relocate, the immigrant is with and without their identity 
-they left behind for something better. But for many, that original identity still is the predominant medium of communication 
-and both comprises and transcends their ideals in form practical to them. To them, there is home and there is resolution that 
-they chose to leave home for. Although the two are not the same, home is still home even with the inadequacies and flaws that 
+and do it so ideally because of "identical" identity? Tricycles have a high degree of freedom on the ground, although 
+the rider still has to choose to think beyond for the third dimension. Tricycles, as they are, cannot fly. But neither 
+do bicycles, some will retort. The servant that is supposed to be loyal asks themself: "why be torn between two worlds 
+when there is an escape right there for me to switch sides for the good of all that I am?" Two concepts, the Princessean 
+identity and the immigrant stereotype, are related to the displaced worker, but not entirely because of objective likeness. 
+The Princessean identity comes from a well-nurturing household. She the Princessean listens to wisdom and does not 
+participate in gossip like the rest, for she dedicates her time towards bettering herself for her career's sake. But 
+the jobs are not there and the Princessean has to resort to compromising her values to pursue her vision, albeit the 
+vision now is in real form with begrudging hesitations and perceivable errors. But the Princessean maintains her 
+composure and plays this game of limited options. The Princessean, after the hump/s she cross/es, reflects on her 
+struggles as necessary and continues on in consistently attempting to stand by her convictions, before and after her 
+trials. Immigrants do not immigrate to some other place except because they envision something better for themselves. 
+Disenfranchised and having to relocate, the immigrant is with and without their identity they left behind for something 
+better. But for many, that original identity still is the predominant medium of communication and both comprises and 
+transcends their ideals in form practical to them. To them, there is home and there is resolution that they chose to 
+leave home for. Although the two are not the same, home is still home even with the inadequacies and flaws that 
 forced their head for their body to immigrate to another land. So there is this "thing" the immigrant is a part of that 
 a majority of the members of their new land are not a part of. Matters concerning this "thing" are where questions on them 
 are raised. The Princessean identity and the immigrant stereotype made decisions in their times of conditions subpar,
@@ -107,3 +111,6 @@ too is the ambiguity of the displaced worker in the scope of structured and prec
 are not in place, but how can there be a place for them when the ends of available opportunity and they do not meet at the 
 middle point where the sun always shines, where there is never darkness? 
 
+Market trust. To aspire for more when a maximal point has been met, in the market, is to have to trust some words and 
+declared insights of gambler-types based on forecasts of futures. And then there is back to the basics, in some way 
+supporting the economy for staples such as food and energy. 
