@@ -93,9 +93,11 @@ But the Princessean maintains her composure and plays the game of limited option
 she cross/es, reflects on her struggles as necessary and continues on in consistently attempting to stand by her 
 convictions, before and after her trials. Immigrants do not immigrate to some other place except because they envision 
 something better for themselves. Disenfranchised and having to relocate, the immigrant is with and without their identity 
-they left behind for something better. But for many, that original identity still is the medium of communication and both 
-comprises and transcends the ideals in form practical to them. To them, there is home and there is resolution. Although 
-the two are not the same, home is still home even with the inadequacies and flaws that forced their head for their body 
-to immigrate to another land. 
+they left behind for something better. But for many, that original identity still is the predominant medium of communication 
+and both comprises and transcends their ideals in form practical to them. To them, there is home and there is resolution that 
+they chose to leave home for. Although the two are not the same, home is still home even with the inadequacies and flaws that 
+forced their head for their body to immigrate to another land. So there is this "thing" the immigrant is a part of that 
+a majority of the members of their new land are not a part of. Matters concerning this "thing" are where questions on them 
+are raised. 
 
 
