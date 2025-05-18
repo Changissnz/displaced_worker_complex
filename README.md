@@ -75,11 +75,20 @@ their ideals, since they are clearly not very accepting of the opportunities off
 on the resources at the region's hand. Of titles and honors, are there any vacancies for the displaced worker 
 to fill in? Courtroom courtesan, entertainment sensation, so on?  
 
-The idea of the loyal servant is put to the test in times of strange state games and peculiar market trajectives, 
+The idea of the loyal servant is put to the test in times of strange state games and peculiar market trajectories, 
 real and imagined. The loyal servant's decisions in consideration are one thing for what they serve, and their 
 aspirations guide them even when those notions are not at the top of the thought stack. Aspirations for self, 
 aspirations passed down the family line, aspirations for the favored, et cetera. Loyalty determines what is not 
 chosen in the realm of considered decisions. There is debt, loyalty, and identity formatted into ways for a 
 tricycle of stability. Complementary, is it? Does one reliably compensate for the other in times where prohibited 
-bridges are built, precisely because the makers of those bridges can deliver better results and do it so ideally 
-because of "identical" identity? 
+bridges are built precisely because the makers of those bridges are their own deciders, can deliver better results, 
+and do it so ideally because of "identical" identity? The servant that is supposed to be loyal asks themself: 
+"why be torn between two worlds when there is an escape right there for me to switch sides for the good of all 
+that I am?" Two concepts, the Princessean identity and the immigrant stereotype, are related to the displaced worker, 
+but not entirely because of objective likeness. The Princessean identity comes from a well-nurturing household. She 
+the Princessean listens to wisdom and does not participate in gossip like the rest, for she dedicates her time towards 
+bettering herself for her career's sake. But the jobs are not there and the Princessean has to resort to compromising 
+her values to pursue her vision, albeit the vision is in real form with begrudging hesitations and perceivable errors 
+now. 
+
+
