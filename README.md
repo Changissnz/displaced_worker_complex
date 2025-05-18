@@ -16,7 +16,7 @@ It cannot be all a joyride for the displaced worker, despite the atypical qualit
 their living experience in terms of labor. The metaphysical domain of information 
 comprises the base of the dissonance they experience. Conflicting reports on the 
 state of affairs, as well as changing priorities of focus due to the state of finance 
-and other obligations of social and political understanding, necessitates even some of 
+and other obligations of social and political understanding, necessitate even some of 
 the most quality information to be probabilistic. And that information is as good as the 
 knower's scope of command, a perspective that is not results-agnostic. Of course, these truths 
 stand with or without the displaced worker, but are worthy of mention for elaborating on 
