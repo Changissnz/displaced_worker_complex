@@ -57,4 +57,6 @@ and therefore cannot maximally support, relatively speaking, the labor and capit
 expectations of the displaced worker, no matter how hard the worker tries in their attempts to appease 
 in the hopes of remaining in or attaining their wanted professional occupation. 
 
-Does the displaced worker really deserve to receive blind sympathies? 
+Does the displaced worker really deserve to receive blind sympathies? Who is the displaced worker, a 
+competitor in previous settings but now a disenfranchised nobody, unfair to say or unfair because that 
+is the truth? 
