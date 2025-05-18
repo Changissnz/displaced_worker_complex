@@ -73,9 +73,13 @@ needless strife of attempting to do something other than work alongside peers th
 resources. Maybe some will think the displaced worker does not really believe in equality, this a judgment on 
 their ideals, since they are clearly not very accepting of the opportunities offered to them that all depend 
 on the resources at the region's hand. Of titles and honors, are there any vacancies for the displaced worker 
-to fill in? Courtroom courtesan, entertainment sensation, so on. 
+to fill in? Courtroom courtesan, entertainment sensation, so on?  
 
 The idea of the loyal servant is put to the test in times of strange state games and peculiar market trajectives, 
 real and imagined. The loyal servant's decisions in consideration are one thing for what they serve, and their 
 aspirations guide them even when those notions are not at the top of the thought stack. Aspirations for self, 
-aspirations passed down the family line, aspirations for the favored, et cetera. 
+aspirations passed down the family line, aspirations for the favored, et cetera. Loyalty determines what is not 
+chosen in the realm of considered decisions. There is debt, loyalty, and identity formatted into ways for a 
+tricycle of stability. Complementary, is it? Does one reliably compensate for the other in times where prohibited 
+bridges are built, precisely because the makers of those bridges can deliver better results and do it so ideally 
+because of "identical" identity? 
