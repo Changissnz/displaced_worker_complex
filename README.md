@@ -72,5 +72,6 @@ to be tended to. The conditions of the displaced worker can be attempted justifi
 needless strife of attempting to do something other than work alongside peers that deals with the regional 
 resources. Maybe some will think the displaced worker does not really believe in equality, this a judgment on 
 their ideals, since they are clearly not very accepting of the opportunities offered to them that all depend 
-on the resources at the region's hand. 
+on the resources at the region's hand. Of titles and honors, are there any vacancies for the displaced worker 
+to fill in? Courtroom courtesan, entertainment sensation, so on. 
 
