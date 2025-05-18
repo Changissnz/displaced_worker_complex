@@ -41,9 +41,19 @@ rather than command for and from the state. The birth of market enterprises are 
 small of scale, and their players need not rely on their history in order to be successful. 
 States can also not rely so much on their history, but fostering and maintaining their validity 
 really does depend on the human memories of their performance during relevant timespans. The 
-liquid quality of the market is encouraged by disposing of formal definition and appearances, 
+liquid quality of the market is encouraged by disposal of formal definition and appearances, 
 and this liquidity seeps into the lifeblood of a state, maybe so much that convictions are 
 discarded and allegiances are re-interpreted. Markets can thrive in conditions of liquidity, 
-offering more human beings more options that are then fed back into the market for its growth. 
-
+offering more human beings more options that are then fed back into the market for their growth. 
+A market that wants to do more than simply stay alive reinforces itself through the power 
+granted to it by the feedback from the market endpoints and related parties. And that is where 
+the line between market and state is blurred. Market dynamics partner with the state, and the 
+market maintains a level of autonomy that can do the bidding of the state. Capabilities of 
+multi-faceted nature become perfected in execution during the maturization of relevant markets. 
+So the displaced worker, being displaced, is willfully so when they do not believe they can 
+further the positive magnitude of the multi-faceted nature via concentrating their efforts in 
+any one facet. The multi-faceted nature may be reforming in quality and quantity and therefore 
+cannot maximally support the labor and capital compensation expectations of the displaced worker, 
+no matter how hard the worker tries in their attempts to appease in the hopes of remaining in or 
+attaining their wanted professional occupation. 
 
