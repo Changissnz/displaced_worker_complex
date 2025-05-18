@@ -89,7 +89,7 @@ but not entirely because of objective likeness. The Princessean identity comes f
 the Princessean listens to wisdom and does not participate in gossip like the rest, for she dedicates her time towards 
 bettering herself for her career's sake. But the jobs are not there and the Princessean has to resort to compromising 
 her values to pursue her vision, albeit the vision now is in real form with begrudging hesitations and perceivable errors. 
-But the Princessean maintains her composure and plays the game of limited options. The Princessean, after the hump/s 
+But the Princessean maintains her composure and plays this game of limited options. The Princessean, after the hump/s 
 she cross/es, reflects on her struggles as necessary and continues on in consistently attempting to stand by her 
 convictions, before and after her trials. Immigrants do not immigrate to some other place except because they envision 
 something better for themselves. Disenfranchised and having to relocate, the immigrant is with and without their identity 
@@ -98,6 +98,12 @@ and both comprises and transcends their ideals in form practical to them. To the
 they chose to leave home for. Although the two are not the same, home is still home even with the inadequacies and flaws that 
 forced their head for their body to immigrate to another land. So there is this "thing" the immigrant is a part of that 
 a majority of the members of their new land are not a part of. Matters concerning this "thing" are where questions on them 
-are raised. 
-
+are raised. The Princessean identity and the immigrant stereotype made decisions in their times of conditions subpar,
+according to their expectations. There are aspects in these two concepts that are frequent surfaces of adversity against 
+them. Going back to the loyal servant and the displaced worker, how can the two be conceived as anything similar in times 
+of order that may not depend so much on market forces? The Princessean identity and the immigrant stereotype are split 
+between settling for what is given and still pondering on their ideals and the alternatives that they actually are. So 
+too is the ambiguity of the displaced worker in the scope of structured and preconceived judgment. What are they if they 
+are not in place, but how can there be a place for them when the ends of available opportunity do not meet them at the 
+middle point where the sun always shines, where there is never darkness? 
 
