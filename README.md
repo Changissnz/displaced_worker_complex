@@ -88,10 +88,14 @@ that I am?" Two concepts, the Princessean identity and the immigrant stereotype,
 but not entirely because of objective likeness. The Princessean identity comes from a well-nurturing household. She 
 the Princessean listens to wisdom and does not participate in gossip like the rest, for she dedicates her time towards 
 bettering herself for her career's sake. But the jobs are not there and the Princessean has to resort to compromising 
-her values to pursue her vision, albeit the vision is in real form with begrudging hesitations and perceivable errors 
-now. But the Princessean maintains her composure and plays the game of limited options. The Princessean, after the hump/s 
-she cross/es, reflects on her struggles as necessary and continues on in consistently standing by her convictions, before 
-and after her trials. Immigrants do not immigrate to some other place except because they envision something better for 
-themself. 
+her values to pursue her vision, albeit the vision now is in real form with begrudging hesitations and perceivable errors. 
+But the Princessean maintains her composure and plays the game of limited options. The Princessean, after the hump/s 
+she cross/es, reflects on her struggles as necessary and continues on in consistently attempting to stand by her 
+convictions, before and after her trials. Immigrants do not immigrate to some other place except because they envision 
+something better for themselves. Disenfranchised and having to relocate, the immigrant is with and without their identity 
+they left behind for something better. But for many, that original identity still is the medium of communication and both 
+comprises and transcends the ideals in form practical to them. To them, there is home and there is resolution. Although 
+the two are not the same, home is still home even with the inadequacies and flaws that forced their head for their body 
+to immigrate to another land. 
 
 
