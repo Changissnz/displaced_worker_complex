@@ -23,7 +23,7 @@ knower's scope of command, a perspective that is not results-agnostic. Of course
 stand with or without the displaced worker, but are worthy of mention for elaborating on 
 the prime qualities of the dissonance in their categorical experience. 
 
-What skills the displaced worker have are not being maximalized by their occupation. But 
+What skills the displaced worker has are not being maximalized by their occupation. But 
 on this matter, the term "occupation" could be taken to mean the hobbies and passions of 
 the displaced worker. Besides, what comes after maximalization is not much more on that, 
 it seems, and compelled maximalization and the characterization of freedom as the liberty 
